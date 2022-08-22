@@ -1,0 +1,1 @@
+# Strategic-Implementing-Organizational-Change-for-Wealthsimple-
